@@ -5,7 +5,7 @@
 # *Последнее обновление 07/06/2026*
 
 
-# [- Seoul v11 Asta *Latest Version*](https://zach.s-ul.eu/iK2MCPm9)
+# [- Seoul v11 Asta *Latest Version*](https://zach.s-ul.eu/iK2MCPm9](https://drive.usercontent.google.com/download?id=1AAtaSZmO3jMjgz7kMs66MGIXxl7Q-u8D&export=download&authuser=0)
 ![image](https://github.com/yourangelharuu/myosuskins/blob/main/screenshots/screenshot001.jpg?raw=true)
 # [- Seoul v11 Asta Edit](https://notshigetora.s-ul.eu/MBtiDXCn)
 ![image](https://user-images.githubusercontent.com/45379301/271809693-9ec80b35-e58d-4f7d-836d-e1b011563724.png)
