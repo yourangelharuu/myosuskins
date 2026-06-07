@@ -6,7 +6,7 @@
 
 
 # [- Seoul v11 Asta *Latest Version*](https://zach.s-ul.eu/iK2MCPm9)
-![image](https://zach.s-ul.eu/hpT803SL)
+![image](https://github.com/yourangelharuu/myosuskins/blob/main/screenshots/screenshot001.jpg?raw=true)
 # [- Seoul v11 Asta Edit](https://notshigetora.s-ul.eu/MBtiDXCn)
 ![image](https://user-images.githubusercontent.com/45379301/271809693-9ec80b35-e58d-4f7d-836d-e1b011563724.png)
 # [- Seoul v11 Shige Edit](https://notshigetora.s-ul.eu/VkxXFE32)
